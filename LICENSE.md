@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with exclusive NFT Rarity Sniper for opensea sniper bot | trailing-stop & wash-trading-detection. Featuring trailing-stop and
 
 
 
